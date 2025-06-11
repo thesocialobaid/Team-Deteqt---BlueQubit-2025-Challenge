@@ -1,0 +1,1 @@
+# Team-Deteqt---BlueQubit-2025-Challenge
